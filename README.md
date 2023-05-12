@@ -9,4 +9,4 @@ I can develop mobile applications for IOS and Android.
 
 You can reach me out for any consultation and questions regarding any of the topics.
 
-The best way to reach me is through Telegram (@nadermasri) 📥 
+You can reach me out anytime through Telegram (@nadermasri) 📥 
